@@ -1,6 +1,10 @@
 
 ### Self-Taught | Full-Stack Web Developer
 
+I have 4+ Total Years of Programming Experience, 
+before I used to do Game Development, Game Desgin & Game UX/UI, and my first ever programming language was: **Lua**, which in my honest and totally unbiased opinion is far better than Python in many ways.
+
+
 Work In Progress,
 ⚠️🚧🚧🚧🚧🚧⚠️
 
