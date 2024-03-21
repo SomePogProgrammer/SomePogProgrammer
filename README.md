@@ -41,6 +41,6 @@ I love to help out others (especially on voice call), on online forums, and plat
 # My Dream:
 
 
-Ultimately I want to start up my own Programming school (hopefully funded by Microsoft, and big tech investors), and I hope to do this after I work a few years in the field. 
+Ultimately I want to start up my own Programming school (hopefully funded by Microsoft, and big tech investors. *Microsoft plz contact me 🥺*), and I hope to do this after I work a few years in the field. 
 
 I plan to go to college to eventually obtain my PhD in Computer Programming/Computer Science, for no other reason but it gives me creditibility. 😆 (Since I'm more than qualified to teach others, but obtaining a PhD will help when it comes to aquiring investors, and the hiring process, and along the way I can easily network whilst I'm attending school.)
