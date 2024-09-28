@@ -39,7 +39,7 @@ I'm really good at explaining the process of programming. I've taught over a sho
 I love to help out others (especially on voice call), on online forums, and platforms.
 
 
-# My Dream:
+# My Vision:
 
 
 Ultimately I want to start up my own Programming school (hopefully funded by Microsoft, and big tech investors. *Microsoft plz contact me 🥺*), and I hope to do this after I work a few years in the field. 
